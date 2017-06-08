@@ -4,7 +4,7 @@
 
 
 ## Link Apk:
-  [Link apk-release](https://drive.google.com/file/d/0Bxzv7ZNEpQLtRVRlZUROcHg2Rk0/view?usp=sharing) 
+  [Link apk-release](https://drive.google.com/open?id=0Bxzv7ZNEpQLtNHMzOVU1Z01XVzQ) 
 
 
 
